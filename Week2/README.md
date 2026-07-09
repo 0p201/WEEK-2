@@ -11,4 +11,5 @@ I am progress here.
 i live in kaldhara marg.
 i have a homestay.
 i have apet.
-hey tom hoiw are you.
+hey tom how are you.
+It may rain today.
